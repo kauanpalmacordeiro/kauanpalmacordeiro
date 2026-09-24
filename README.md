@@ -1,4 +1,4 @@
-# Kauan de palma cordeiro 
+# 👻 Kauan de palma cordeiro 
 
 🚀 **Estudante | Desenvolvedor em formação**  
 🇧🇷 Brazil
